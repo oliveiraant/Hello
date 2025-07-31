@@ -1,4 +1,4 @@
-# Analista de Banco de Dados 📖 estudando de Programação.
+# Analista de Banco de Dados 📖 estudante de Programação.
 
 ## 🖥️ Paixão por tecnologia.
 
